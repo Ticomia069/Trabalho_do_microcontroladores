@@ -1,1 +1,2 @@
-https://mail.google.com/mail/u/1/popout?ver=zs1qyhlt6gr6#attid%253Datt_19757057c6f279aa_0.1_f_mbpq1jwb0
+
+https://mail.google.com/mail/u/1?ui=2&ik=93a7ebcbd9&attid=0.2&permmsgid=msg-f:1834495945525590442&th=19757057c6f279aa&view=att&disp=inline&realattid=f_mbpq1jww1&zw
